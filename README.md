@@ -3,27 +3,27 @@
 ## **Introduction**  
 In today's digital age where misinformation spreads rapidly, distinguishing fact from fiction has become increasingly challenging. **Logically AI** emerges as a groundbreaking artificial intelligence platform designed to combat misinformation, enhance critical thinking, and promote media literacy. By leveraging advanced natural language processing (NLP), machine learning, and big data analytics, Logically AI helps individuals, organizations, and governments verify information, detect fake news, and make informed decisions.
 
-<a href="https://afforai.com/?via=muhammad">
+<a href="https://afforai.com/?via=amir">
   <img src="https://github.com/user-attachments/assets/09f62a0e-4126-421a-ac4e-00c289a9206d" alt="A beautiful sunset" style="max-width: 100%; height: auto; width: 100%;" />
 </a>
 
 
 
-## [Use This Exclusive Link to Get 80% OFF](https://afforai.com/?via=muhammad) 
+##[ [Use This Exclusive Link to Get 80% OFF]](https://afforai.com/?via=amir)
 
 
 Originally developed to address the global misinformation crisis, Logically AI combines human expertise with cutting-edge AI technology to analyze content across social media, news platforms, and other digital sources. Whether you're a journalist fact-checking a story, a business monitoring its online reputation, or an everyday social media user, Logically AI serves as your intelligent shield against deception in the digital world.
 
 ## **Key Features of Logically AI**
 
-## [Use This Exclusive Link to Get 80% OFF](https://afforai.com/?via=muhammad)
+##[ [Use This Exclusive Link to Get 80% OFF]](https://afforai.com/?via=amir)
 
 ### **1. Advanced Fact-Checking Engine**
 - Automatically verifies claims against trusted databases and credible sources
 - Detects manipulated media (deepfakes, altered images/videos)
 - Provides confidence scores for information accuracy
 
-  ## Use This Exclusive Coupon Code 15% Extra OFF : MUHAMMAD
+  ## Use This Exclusive Coupon Code 15% Extra OFF : AMIR
 
 ### **2. Real-Time Misinformation Detection**
 - Monitors social media trends and viral content
